@@ -1,0 +1,2 @@
+# AJ
+Getting into IT
